@@ -1,4 +1,4 @@
-# 
+# Instantâneo FreshBooks extensões para Mac OS | Profissional FreshBooks extensões para PC Windows. Com suporte multi-moeda e suporte a multi-dispositivos — otimizado para máximo desempenho em cada plataforma.
 
 
 
